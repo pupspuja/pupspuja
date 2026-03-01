@@ -12,5 +12,5 @@ i'm cool and stuff also heres my links LOL \
 https://www.pinterest.com/pupspuja/ \
 https://www.tumblr.com/blog/pupspuja \
 https://www.roblox.com/users/713231734/profile \
-https://www.tiktok.com/@pupspuja_ \ 
+https://www.tiktok.com/@pupspuja_ \
 https://soundcloud.com/thanksiknow
