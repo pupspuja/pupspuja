@@ -8,9 +8,3 @@
 hi! you can call me thanksiknow / rudy / carolynne / pupspuja! \
 i am a bobette fictionlink, and i am agender, going by hy / hym \
 bobette yumeshippers (a lot of you LOL) please please iwec!! \
-i'm cool and stuff also heres my links LOL \
-https://www.pinterest.com/pupspuja/ \
-https://www.tumblr.com/blog/pupspuja \
-https://www.roblox.com/users/713231734/profile \
-https://www.tiktok.com/@pupspuja_ \
-https://soundcloud.com/thanksiknow
